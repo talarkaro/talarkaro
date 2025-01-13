@@ -1,5 +1,4 @@
-### Hi 👋, I am Karolina Talar
-PostDoc at the University of Tübingen, Germany
+### Hi 👋, I am Karolina Attri
 
 
 
